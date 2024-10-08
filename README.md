@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Akshanshibhardwaj
-- 👀 I’m interested in Biotech Software devolper..
+- 👀 I’m interested in HSEQ..
 - 🌱 I’m currently learning research paper based on biotechnology...
 - 💞️ I’m looking to collaborate on research...
 - 📫 How to reach me through linkedn https://www.linkedin.com/in/akshanshi-bhardwaj-1362b4171/...or instagram id https://www.instagram.com/akshanshi_bhardwaj/
